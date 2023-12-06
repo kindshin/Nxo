@@ -1,2 +1,2 @@
 # Nxo
-This account is looks danger
+Private_Server in Blox Fruit
